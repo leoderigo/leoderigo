@@ -2,7 +2,7 @@
 
 Sou empolgado com coisas novas e diferentes e café nunca é demais! <img src="https://i.pinimg.com/originals/aa/95/01/aa9501df489c885cce3f31b0fc6234ef.png" width="30" />
 
-Deixa eu mostrar um por sobre mim!
+Deixa eu mostrar um pouco sobre mim!
 <p align="center"><img src="https://acegif.com/wp-content/gifs/coffee-31.gif"></p>
 
 #### No que sou formado? 
